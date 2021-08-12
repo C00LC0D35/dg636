@@ -1,7 +1,3 @@
--Hi, I’m @dg636
-
--discord Dg636#0001
-
 
 -scroll down
 
